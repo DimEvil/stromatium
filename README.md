@@ -1,0 +1,4 @@
+stromatium
+==========
+
+Part of paper
