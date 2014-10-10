@@ -8,12 +8,13 @@
 Hours later the beetle became very active, indicating the beetle was in good condition (image 2).
 
 ![Image 2](images/image_2_SB_later.jpg)
+*Image 2: The specimen after one day*
 
-The woodwork's in the house were thoroughly examined and wooden toys were looked upon intensively but the exit hole was not found. A recent re-examination of one toys, a wooden rocking horse, showed an exit hole which could fit *Stromatium longicorne* (image 2 & 3). The maximal length of the exit hole measures 9 mm and the maximal width measures 6 mm. A second individual was ,to date, never found.
+The woodwork's in the house were thoroughly examined and wooden toys were looked upon intensively but the exit hole was not found. A recent re-examination of one toys, a wooden rocking horse, showed an exit hole which could fit *Stromatium longicorne* (image 3 & 4). The maximal length of the exit hole measures 9 mm and the maximal width measures 6 mm. A second individual was ,to date, never found.
 
 ![Image 3](images/image_1.jpg)
 
-*Image 3:suspected carrier of the *Stromatiom longicorne* larvae
+*Image 3:suspected carrier of the *Stromatiom longicorne* larvae*
 
 ![Image 4](images/image_2.jpg)
 
